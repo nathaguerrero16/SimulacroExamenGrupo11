@@ -1,1 +1,2 @@
 Daniel Chacón
+Horacio Sosa
