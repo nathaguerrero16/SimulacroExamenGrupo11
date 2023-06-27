@@ -1,2 +1,0 @@
-Daniel Chacón
-Horacio Sosa
